@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @juprincess
 - 👀 I’m interested in "learning how to code!!"
 - 🌱 I’m currently learning "everything"
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on "fun things"
+- 📫 How to reach me "don´t"
 - 😄 Pronouns: "she/her"
 - ⚡ Fun fact: ...
 
